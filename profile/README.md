@@ -1,1 +1,1 @@
-Hello I am a trans woman who likes anime girls and computers
+Hello I like anime girls and computers
